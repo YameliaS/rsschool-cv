@@ -1,4 +1,5 @@
 # CV
+![IMG_91961](https://user-images.githubusercontent.com/107304964/188667818-f54c61a8-2caa-4f85-8003-669ac922231a.jpg)
 
 ## Yamelin Siarhei
 ### Contacts
