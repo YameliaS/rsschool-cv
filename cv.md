@@ -4,7 +4,7 @@
 ## Yamelin Siarhei
 ### Contacts
 - **location:** Krakow, Poland
-- **tel:** +48518466088
+- **tel:** + 48 518 466 088
 - **email:** YameliaS@yandex.ru
 - **GitHub:** YameliaS
 
